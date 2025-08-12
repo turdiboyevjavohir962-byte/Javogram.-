@@ -1,0 +1,2 @@
+# Javogram.-
+Salom hammaga yaxshimisizlar
